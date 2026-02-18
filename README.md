@@ -1,0 +1,60 @@
+# Home Made Kazoku – Life goes on & on (Extended Ver.)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+EVER LASTING STORY
+EVER LASTING STORY 永久に永遠...
+この仲間と共に 続く物語 It goes round and round
+EVER LASTING STORY
+EVER LASTING STORY 永久に永遠...
+あの頃と変わらず 歩くこの旅路 Life goes round
+and round
+
+空想膨らます冒険家 寝る前はいつも俺の遊び場
+そこから生まれる様々なアイディアを一つずつ具現化
+してきた
+飽くなき探求心は、とどまる事なく 道のりは未だ程
+遠く
+Life goes on and on 常に次の俺を探しに行く旅に出
+よう
+
+WINDING ROAD を毎日仲間と 歩んできた絆が「宝物」
+だからもう 後戻りはない 残した足跡にも未練はない
+絶え間なくノックする新たな扉
+Open up say "HI!!"to the next future
+ユウチャン、クロ、ミクロ まだ駆け抜けるぞ Life
+goes on and on
+
+
+10年後の俺も今とかわらず この曲を聴いてうなずい
+てるはず
+だからコンテニュー... この音楽でゴールまで行ける
+と思い込んでる
+志しが同じ仲間たちと出合ったあの日以来苦楽を分か
+ち
+ここまで来たからには 進むのみだ!
+思い描いた あのユートピア
+
+きっとこの旅に終わりなんてない だが行けるとこま
+で突き詰めてみたい
+理由(わけ)なんてない ただこれが楽しい 死ぬまで
+ずっと俺はMC
+あの日の誓い 路上の缶ビール ビーフジャーキー片手
+に語った日々
+今も変わらずともる灯火を決して絶やさず友と共に…
+
+
+Life goes on on and on and on Life goes on on
+and on and on
+Life goes on on and on and on 俺たちの旅路 残す
+轍
+Life goes on 前を向いて Life goes on 行ける所ま
+で
+Life goes on 歩いて行くだけ Life goes on  on and
+on and on
+Life goes on on and on and on Life goes on on
+and on and on
+Life goes on on and on and on 俺たちの旅路 残す
+轍
+```
